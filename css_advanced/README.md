@@ -1,2 +1,2 @@
 Now it is time to style our get schooled website
-![author_image](https://github.com/user-attachments/assets/ef0fcf3b-8ff6-4b7f-8609-0c440448c7c6)
+![Group 2](https://github.com/user-attachments/assets/441797bd-5bfe-421c-a3f3-c0b8d8fbd66c)
